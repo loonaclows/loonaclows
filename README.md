@@ -1,14 +1,6 @@
-![](https://komarev.com/ghpvc/?username=loonacpaws&label=LOONAC!&color=cfe1e3)
-
-
-
-this is a large wip lmao idk why its public whatever 
-go vis straw
-
- [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=thank+you+for+being+my+teammate,;+i+guess.&color=a5d6d4&center=true&font=PTSerif)](https://git.io/typing-svg)
-
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-https://docs.google.com/document/d/1BSunV-7boGS86mZHqcxakj7SP4Vy0mjwnw3bdJHCs2E/edit?usp=sharing
-   
-<img width="300" height="300" alt="Screenshot 2026-03-23 115349" src="https://github.com/user-attachments/assets/ba5ee5f2-6de2-4e95-bf3a-839795fab880" />
- wa wa we we
+<div align="center">
+over and over , 
+<p align="center">
+<img width="300" height="433" alt="download (1)" src="https://github.com/user-attachments/assets/7c062276-d283-45bb-99b5-f37e53df9155" />
+<div align="center"> 
+i fuck myself over.
