@@ -1,9 +1,9 @@
 <div align="center">
-over and over , 
+i know ,  just how you feel , 
 <p align="center">
-<img width="300" height="433" alt="download (1)" src="https://github.com/user-attachments/assets/7c062276-d283-45bb-99b5-f37e53df9155" />
+<img width="459" height="560" alt="TaiMc - Strength smp" src="https://github.com/user-attachments/assets/ebbcc159-6cde-443e-8f09-d3515ed4a52d" />
 <div align="center"> 
-i fuck myself over.
+i feel it too ^^.
  
   
   
