@@ -1,5 +1,5 @@
 <div align="center">
-i know ,  just how you feel , 
+
 <p align="center">
 
  
@@ -7,10 +7,7 @@ i know ,  just how you feel ,
 
 
 <div align="center"> 
-i feel it too ^^.
+
  
   
   
-  BITCH FUCK U XATH
-UR LUCKY IM A GITHUB NEWGEN AND DYONT KNOW HOT TO LINK SHiT LIKE U
- DIEEEEEEEEEEEEEEE
